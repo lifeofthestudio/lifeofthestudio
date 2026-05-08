@@ -55,7 +55,7 @@ Tools are chosen for what they can *think*, not just what they can render.
 ### ▌ CONTACT
 
 This work is made to be encountered.
-If something here resonates — reach out.
+If something here resonates — reach out lifeofthestudio@hotmail.com, +234 90681 99994.
 
 <br/>
 
